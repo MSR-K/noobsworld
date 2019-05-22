@@ -1,3 +1,3 @@
 # noobsworld
-View Clone Try 
-Dont forget to share!!!!!!!!!!!
+Happy Coding!!
+ALL RIGHT RESERVED @copyright
